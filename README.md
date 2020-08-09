@@ -47,6 +47,7 @@ Things that I like.
 - [Vagabond](https://www.viz.com/vagabond)
 - [Tengen toppa gurren lagann](https://www.imdb.com/title/tt0948103/)
 - [Gunbuster](https://www.imdb.com/title/tt0098492/)
+- [Kono subarashii sekai ni shukufuku o!](https://www.imdb.com/title/tt5370118/)
 - [Fate/Zero](https://www.imdb.com/title/tt2051178/)
 - [Zettai Karen Children: The Unlimited - Hyoubu Kyousuke](https://www.imdb.com/title/tt2575708/)
 - [Code Geass](https://www.imdb.com/title/tt0994314/)
