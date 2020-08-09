@@ -1,6 +1,6 @@
-# likes
+# Likes
 
-Things that I like.
+Things that I like. In no particular order.
 
 ##### Movies
 
@@ -52,7 +52,6 @@ Things that I like.
 - [Zettai Karen Children: The Unlimited - Hyoubu Kyousuke](https://www.imdb.com/title/tt2575708/)
 - [Code Geass](https://www.imdb.com/title/tt0994314/)
 - [20th Century Boys](https://www.viz.com/naoki-urasawa-s-20th-century-boys)
-
 
 ##### Podcasts
 
