@@ -49,6 +49,7 @@ Things that I like. In no particular order.
 - [Gunbuster](https://www.imdb.com/title/tt0098492/)
 - [Kono subarashii sekai ni shukufuku o!](https://www.imdb.com/title/tt5370118/)
 - [Fate/Zero](https://www.imdb.com/title/tt2051178/)
+- [Bokurano](https://en.wikipedia.org/wiki/Bokurano:_Ours)
 - [Zettai Karen Children: The Unlimited - Hyoubu Kyousuke](https://www.imdb.com/title/tt2575708/)
 - [Code Geass](https://www.imdb.com/title/tt0994314/)
 - [20th Century Boys](https://www.viz.com/naoki-urasawa-s-20th-century-boys)
