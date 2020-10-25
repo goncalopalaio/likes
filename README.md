@@ -52,6 +52,7 @@ Things that I like. In no particular order.
 - [Bokurano](https://en.wikipedia.org/wiki/Bokurano:_Ours)
 - [Zettai Karen Children: The Unlimited - Hyoubu Kyousuke](https://www.imdb.com/title/tt2575708/)
 - [Code Geass](https://www.imdb.com/title/tt0994314/)
+- [Casshern Sins](https://www.imdb.com/title/tt0235119/)
 - [20th Century Boys](https://www.viz.com/naoki-urasawa-s-20th-century-boys)
 
 ##### Podcasts
