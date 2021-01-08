@@ -30,6 +30,7 @@ Things that I like. In no particular order.
 - [Gremlins](https://www.imdb.com/title/tt0087363/)
 - [Home Alone](https://www.imdb.com/title/tt0099785/)
 - [Ocean's Eleven](https://www.imdb.com/title/tt0240772)
+- [Gattaca](https://www.imdb.com/title/tt0119177/)
 
 ##### Series
 
